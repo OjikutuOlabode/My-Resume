@@ -18,12 +18,12 @@
 
   
 ## Work Experience
-**Zionistar Montessori School 2021-present**
-**Todas Kiddies Palace Ishaga 2020-present**
-**Redemption Gate secondary School 2019-present**
-**Npower staff, Fagba Junior Grammar School 2018- 2020**
-**Imam Hafsin International School 2017**
-**Kano state Polytechnic, SOT, Kano State(NYSC). 2016 -2017**
-**St. Micheal Academy 2016**
-**Sales representative, Iya Kunle’s store 2008 -2011**
+- Music Teacher, Zionistar Montessori School 2021-present
+- Music Teacher, Todas Kiddies Palace Ishaga 2020-present
+- Music Teacher, Redemption Gate secondary School 2019-present
+- Npower staff, Mathematics Teacher, Fagba Junior Grammar School 2018- 2020
+- Mathematics Teacher, Imam Hafsin International School 2017
+- Assistant lecturer, Kano state Polytechnic, SOT, Kano State(NYSC). 2016 -2017
+- Mathematics Teacher, St. Micheal Academy 2016
+- Sales representative, Iya Kunle’s store 2008 -2011
 
