@@ -1,4 +1,4 @@
-# Data Scientist
+# My Resume
 
 #### Technical Skills: EXCEL, SQL, powerBi
 
